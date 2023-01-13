@@ -13,3 +13,5 @@ For my capstone I am studying street vendors in public space and how cities can 
 
 ![91881D43-F16A-495E-935B-12F49CA2AAFF_1_105_c](https://user-images.githubusercontent.com/122329499/212176019-bfa8f551-8fd1-43a3-b0a8-02d44165e8cc.jpeg)
 Here is a photo from my favorite run of 2022 ❤️ 🏃‍♀️
+
+link: https://github.com/zotheo/up221-zoe/tree/main
